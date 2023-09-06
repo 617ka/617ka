@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @Sovrad
+- 👋 Hi, I’m @617ka
 - ⚔️ I’m interested in history
 - 🖥️ I’m currently learning programming
